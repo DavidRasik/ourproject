@@ -1,1 +1,1 @@
-# ourproject velitel=DAvid the great👍
+# ourproject velitel=DAVID the great👍
